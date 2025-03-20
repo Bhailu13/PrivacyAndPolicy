@@ -1,1 +1,1 @@
-terms and condition .
+privacy and policy .
